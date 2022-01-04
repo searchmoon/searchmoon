@@ -1,4 +1,4 @@
-### be yourself don't let other people tell you what you should be 😄
+### Be yourself don't let other people tell you what you should be 😄
 
 <!--
 **searchmoon/searchmoon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
